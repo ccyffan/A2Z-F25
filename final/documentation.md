@@ -17,7 +17,7 @@
 - Rajeshwari --
 - Niki --
 - Ivy --
-- Yifan --
+- Yifan -- [CooPilot](https://docs.google.com/presentation/d/1EHO1zggsbLD1jH51RuithEyC3Ftc-ghFQmUJnK3tKcU/edit?usp=sharing)
 - Junqi --
 - Sky --
 - Thank you! 💜
